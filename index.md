@@ -12,7 +12,7 @@ While driving back from picking up coffee one Saturday morning, the idea for thi
 
 I really do not know how long this will go, I have dozens of topics to cover, and an entire American continental topography to navigate.
 
-More than anything, I appreciate you stopping by to read my prose.  More than anything, I hope it resonates with you, and maybe just give you the inspiration to make a change in your life that you have been hesitant to do.
+More than anything, I appreciate you stopping by to read my prose and I hope it resonates with you.  And maybe it'll give you the inspiration to make a change in your life that you have been hesitant to do.
 
 Feedback is welcome, contact me here with your thoughts:
 
