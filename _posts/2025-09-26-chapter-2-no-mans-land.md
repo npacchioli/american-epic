@@ -78,9 +78,9 @@ Another figure emerges - draped in black
 A twin to the fieldhand in every sense of the word  
 Grunting obscenities under his breath  
 Undoubtedly bound here by the same curse  
-Me again hopeless to act with agency  
+Me still hopeless to act on my own accord  
 Oblige to his command  
-As he simply mutters "ID" - two simple letters  
+WHen he simply mutters "ID" - two simple letters  
 
 My hands shake as I reach for my wallet  
 Thinking about the ridiculousness of such a request  
